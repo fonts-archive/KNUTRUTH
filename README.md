@@ -1,6 +1,6 @@
 # 경북대 진리체
 
-[Visit Source](https://www.knu.ac.kr/wbbs/wbbs/contents/index.action?menu_url=intro/about04_05&menu_idx=242)
+[원 배포처 링크](https://www.knu.ac.kr/wbbs/wbbs/contents/index.action?menu_url=intro/about04_05&menu_idx=242)
 
 &nbsp;
 
